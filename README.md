@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Baochu-NoName
-- 👀 I’m interested in reading books, playing video games, football, basketball
+- 👀 I’m interested in reading books, listening to music,  playing video games, football, basketball
 - 🌱 I’m currently learning IT in HUTECH University(Ho Chi Minh City, Viet Nam)
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
